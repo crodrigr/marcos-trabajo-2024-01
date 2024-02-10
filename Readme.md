@@ -1,3 +1,3 @@
 # Marcos de Trabajo
 
-[Material](https://www.notion.so/Marcos-de-Trabajo-181636dedf7f4ff1973a59e02474055f)
+[Material](https://graceful-walleye-93d.notion.site/Primer-Corte-8efa2b875c3f4f4f90e8c374ae014150)
